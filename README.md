@@ -1,1 +1,1 @@
-### Self taught web developer pursuing success
+### Full stack web developer pursuing success
